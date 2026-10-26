@@ -1,1 +1,1 @@
-# dba-19706-2026-2-LoaizaBeltran-AlanYahir-
+# dba-19706-2026-2-LoaizaBeltran-AlanYahir
